@@ -1,8 +1,8 @@
 - ✦ rocket !!
 - ✦ minor + aroace
 - ✦ semiverbal / nonverbal unless friend
-- ✦ c+h allowed, i don't bite
 - ✦ whispers preferred, iwc always unless close
+- ✦ c+h allowed, i don't bite
 - ✦ social anxiety, crowd discomfort, seperation anxiety
 
 <!--
