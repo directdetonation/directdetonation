@@ -1,4 +1,3 @@
-###!
 - ✦ rocket !!
 - ✦ minor + aroace
 - ✦ semiverbal / nonverbal unless friend
